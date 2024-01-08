@@ -14,5 +14,6 @@ git push
 
 ![Blossom](https://facts.net/wp-content/uploads/2023/09/23-facts-about-blossom-the-powerpuff-girls-1694159159.jpg)
 
+![ZeroTwo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTJbr7_N_9MF5H49ZoX3JIL1pCPpBvuWC-5RifDnMyEwqUy4YBpMeohMSbIiGJWjECWAgs&usqp=CAU)
 
 ![Darling ZeroTwo](https://upload.wikimedia.org/wikipedia/en/7/71/Franxx_Zero_Two.jpg)
