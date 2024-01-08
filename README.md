@@ -12,4 +12,7 @@ git commit -m "Commit message"
 git push
 ```
 
-![Darling ZeroTwo](https://facts.net/wp-content/uploads/2023/09/23-facts-about-blossom-the-powerpuff-girls-1694159159.jpg)
+![Blossom](https://facts.net/wp-content/uploads/2023/09/23-facts-about-blossom-the-powerpuff-girls-1694159159.jpg)
+
+
+![Darling ZeroTwo](https://upload.wikimedia.org/wikipedia/en/7/71/Franxx_Zero_Two.jpg)
