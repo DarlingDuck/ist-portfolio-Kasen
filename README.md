@@ -27,3 +27,9 @@ git push
 ![Darling](https://pbs.twimg.com/media/FccwmMUakAESSRN.jpg:large)
 
 ![ZERO](https://cdn.myanimelist.net/images/characters/10/352557.webp)
+
+![ZeroTwo](https://i.pinimg.com/736x/68/a1/f9/68a1f9135b368cdb67dd239c3ab2288f.jpg)
+
+![ZeroTwo](https://www.google.com/url?sa=i&url=https%3A%2F%2Frarts.tumblr.com%2Fpost%2F184677643936%2Fpretty-anime-girl-zero-two-code-002-darling-in&psig=AOvVaw2GH3GAFK4nKKwn9NWN0Ynt&ust=1706125132422000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCOiDpM2h9IMDFQAAAAAdAAAAABAR)
+
+![ZeroTwo](https://i.pinimg.com/originals/b7/8a/d8/b78ad8031a4b76a04e7762c550ac4140.png)
